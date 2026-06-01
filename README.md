@@ -1,2 +1,4 @@
 me silver
-@boyindomitus
+@digitalvalen on discord
+not use twitter often anymore
+13139201113011 on spotify
